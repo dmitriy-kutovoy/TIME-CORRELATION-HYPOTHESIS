@@ -1,2 +1,0 @@
-# TIME-CORRELATION-HYPOTHESIS
-Philosophical essay
